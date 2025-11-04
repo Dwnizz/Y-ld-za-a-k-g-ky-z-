@@ -1,1 +1,1 @@
-# Y-ld-za-a-k-g-ky-z-
+Yildiza-asik-gökyüzü
